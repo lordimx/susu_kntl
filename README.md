@@ -1,1 +1,0 @@
-# susu_kntl
